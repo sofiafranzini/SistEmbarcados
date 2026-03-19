@@ -1,2 +1,0 @@
-# SistEmbarcados
-Sofia e Giovanna
